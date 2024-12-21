@@ -10,7 +10,7 @@
   <img src="https://github.com/user-attachments/assets/a6871de8-0c04-4d5f-9b3a-a7547fc17893" />
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/7d26845f-3244-4c5d-a89b-3b445bad14d2" />
+  <img src="https://media.discordapp.net/attachments/1262073255779369074/1319993655855153203/persona-5-yusuke-kitagawa-ezgif.com-resize.gif?ex=6767fb63&is=6766a9e3&hm=62d3830448eac9e9087372d1585eb7aa01a2f62cf71a892ef74631680d597458&=" />
 </p>
 
 <p align="center">

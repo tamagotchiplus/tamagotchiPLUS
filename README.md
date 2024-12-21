@@ -7,21 +7,21 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/c9f83f73-bd25-43a0-8029-4a77b60b7e91" />
+  <img src="https://github.com/user-attachments/assets/a6871de8-0c04-4d5f-9b3a-a7547fc17893" />
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/ffbea71c-c694-4a56-a140-29b30682f2ef" />
+  <img src="https://github.com/user-attachments/assets/7d26845f-3244-4c5d-a89b-3b445bad14d2" />
 </p>
 
 <p align="center">
-anubis - 20 - she
+<img src="https://github.com/user-attachments/assets/5118e502-06b1-44e2-b34f-6113d39c8f91" /> anubis - 20 - she <img src="https://github.com/user-attachments/assets/5118e502-06b1-44e2-b34f-6113d39c8f91" />
   <br>
 <p align="center">
-    no dni just dont be creepy..and an endo!
+    dni endos and being creepy!
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/c9f83f73-bd25-43a0-8029-4a77b60b7e91" />
+  <img src="https://github.com/user-attachments/assets/a6871de8-0c04-4d5f-9b3a-a7547fc17893" />
 </p>
 <br>
 <p align="center">
@@ -35,6 +35,15 @@ anubis - 20 - she
  <img src="https://github.com/user-attachments/assets/c06f2278-ce5c-413d-9b42-24980821f594" />
  <img src="https://github.com/user-attachments/assets/9d267bde-e638-456f-9404-cf8d741532e8" />
  <img src="https://github.com/user-attachments/assets/5fc5fd0b-56c1-47c6-8984-7b8098959d59" />
-<img src="https://github.com/user-attachments/assets/79e45921-bf60-4dea-afb4-1be65ac31529" />
- <img src="https://github.com/user-attachments/assets/dd1ecd09-e4a0-4680-af84-b900a5905d4d" />
+<img src="https://github.com/user-attachments/assets/0d9cbe97-c37a-425c-bff7-4a5e457cd799" />
+ <img src="https://github.com/user-attachments/assets/8fa4fc3d-e515-4286-94c8-6017d040440d" />
+</p>
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/c67137f9-f4cb-4576-bdf3-a1a752b0d3c1" />
+  <img src="https://github.com/user-attachments/assets/f97889f2-f08b-4c6a-acbb-6a9028b73f4b" />
+   <img src="https://64.media.tumblr.com/1ba8acadf93bdf3b77ca962a5b808918/5052f1357060d997-bd/s250x400/1a601e84d5b9382935fa0032902973b74aeb704c.gif" />
+  <br>
+    <img src="https://64.media.tumblr.com/6006f38c350749b9b732f299c7acd4ac/5f6129c6ead3a54f-a7/s250x400/f0cb783108aba3b68178313ca5d77b1f2e25a471.gif" />
+    <img src="https://64.media.tumblr.com/eb5584bfd88bda5e80da7a7ec814eca1/8657239874b12d70-e3/s250x400/28f25bf1ccbe90b0d184d611a5c1dc91a7688a85.gif" />
+     <img src="https://64.media.tumblr.com/5d37cd9ef1a3d0136ba9fbabb8e7179c/b3d36f0d2c457507-aa/s250x400/d542f7f575b23af96beaa40bd7d6c55d5a9f571e.gif" />
 </p>

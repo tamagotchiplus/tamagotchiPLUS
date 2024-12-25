@@ -17,7 +17,7 @@
 <img src="https://github.com/user-attachments/assets/5118e502-06b1-44e2-b34f-6113d39c8f91" /> anubis - 20 - she <img src="https://github.com/user-attachments/assets/5118e502-06b1-44e2-b34f-6113d39c8f91" />
   <br>
 <p align="center">
-    dni endos and being creepy!
+    no dni just dont be creepy!
 </p>
 
 <p align="center">

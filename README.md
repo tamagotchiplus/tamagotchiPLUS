@@ -20,7 +20,7 @@
 <p align="center">
     no dni i do not care
   <p align="center">
-    any int is OK! unless -15
+    any int is OK!
 </p>
 
 <p align="center">

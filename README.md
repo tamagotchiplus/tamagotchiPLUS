@@ -20,9 +20,7 @@
 <p align="center">
     no dni i do not care
   <p align="center">
-   i only mock freaks so if you think i've mocked you..connect the dots
-</p>
-
+i mock degens only 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/a6871de8-0c04-4d5f-9b3a-a7547fc17893" />
 </p>

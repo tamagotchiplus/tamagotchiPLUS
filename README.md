@@ -20,7 +20,7 @@
 <p align="center">
     no dni i do not care
   <p align="center">
-    any int is OK!
+   i only mock freaks so if you think i've mocked you..connect the dots
 </p>
 
 <p align="center">

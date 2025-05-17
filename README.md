@@ -1,7 +1,7 @@
 <p align="center">
   
 <img src="https://github.com/user-attachments/assets/36ecad6e-7ccb-4d24-8021-258c41956a40">
-<img src="https://komarev.com/ghpvc/?username=tamagotchiplus&color=blue"> 
+<img src="https://komarev.com/ghpvc/?username=tamagotchiplus&label=TICKLE+COUNTER&style=plastic&color=0000A5"> 
 <img src="https://github.com/user-attachments/assets/36ecad6e-7ccb-4d24-8021-258c41956a40">
 
 </p>

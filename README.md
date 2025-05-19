@@ -20,7 +20,7 @@
 <p align="center">
     no dni i do not care
   <p align="center">
-my atabook needs signing
+WALTER NUMBER ONE FAN ! he is ugly and funny what a lovely bunny....
 <p align="center">
   <img src="https://github.com/user-attachments/assets/a6871de8-0c04-4d5f-9b3a-a7547fc17893" />
 </p>

@@ -20,7 +20,7 @@
 <p align="center">
     no dni i do not care
   <p align="center">
-WALTER's #1 FAN ! + usagi voice impersonator (srs, my oomfs vouch for me)
+WALTER's #1 FAN ! PLEASE SIGN MY STRAWPAGE !!!!!
 <p align="center">
   <img src="https://github.com/user-attachments/assets/a6871de8-0c04-4d5f-9b3a-a7547fc17893" />
 </p>

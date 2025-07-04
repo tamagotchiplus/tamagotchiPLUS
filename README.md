@@ -18,7 +18,7 @@
 <img src="https://github.com/user-attachments/assets/5118e502-06b1-44e2-b34f-6113d39c8f91" /> anubis - 21 - she <img src="https://github.com/user-attachments/assets/5118e502-06b1-44e2-b34f-6113d39c8f91" />
   <br>
 <p align="center">
-    no dni IDGAF i ignore -15 yr olds
+    no dni IDGAF 
   <p align="center">
 WALTER's #1 FAN !
 <p align="center">

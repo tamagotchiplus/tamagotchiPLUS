@@ -18,7 +18,7 @@
 <img src="https://github.com/user-attachments/assets/5118e502-06b1-44e2-b34f-6113d39c8f91" /> anubis - 21 - she <img src="https://github.com/user-attachments/assets/5118e502-06b1-44e2-b34f-6113d39c8f91" />
   <br>
 <p align="center">
-    no dni i do not care
+    no dni IDGAF im not interacting w -15 for ur safety
   <p align="center">
 WALTER's #1 FAN ! PLEASE SIGN MY STRAWPAGE !!!!!
 <p align="center">

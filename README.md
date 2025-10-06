@@ -20,7 +20,7 @@
 <p align="center">
     no dni IDGAF 
   <p align="center">
-WALTER's #1 FAN !
+WALTER's #1 FAN ! TAMAGOTCHI FAN SINCE 2008 !!! pjsk fans i dont fw you
 <p align="center">
   <img src="https://github.com/user-attachments/assets/a6871de8-0c04-4d5f-9b3a-a7547fc17893" />
 </p>

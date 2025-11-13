@@ -18,6 +18,7 @@
   <p align="center">
 
 <p align="center">
+<a href="https://tamagotchi.atabook.org/">sign my atabook!</a>
 </p>
 <br>
 <p align="center">

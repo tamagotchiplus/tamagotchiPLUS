@@ -2,7 +2,7 @@
   <img width="35" height="35" alt="ezgif-2e909b305c5184d4" src="https://github.com/user-attachments/assets/954d66b1-fa46-48e3-aea3-c734dcf95a7f" />
 
 
-<img src="https://komarev.com/ghpvc/?username=YOKAlWATCH&label=GET+FESTIVE!&style=plastic&color=59379C"> 
+<img src="https://komarev.com/ghpvc/?username=fiendpal&label=GET+FESTIVE!&style=plastic&color=59379C"> 
 
 <img width="35" height="35" alt="ezgif-2e909b305c5184d4" src="https://github.com/user-attachments/assets/058cbc95-43c8-4d95-a6be-326d490ac28a" />
 
